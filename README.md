@@ -2,7 +2,7 @@
 
 Aku seorang **Corporate Fundraising Officer** di [BAZNAS](https://baznas.go.id).<br>
 
-Aku bertanggung jawab pada manage and maintain a database of 2.500+ corporate prospects for CSR and zakat-based social program partnerships..<br>
+Aku bertanggung jawab pada manage and maintain a database of 2.500+ corporate prospects for CSR and zakat-based social program partnerships.<br>
 
 Aku juga memiliki gelar sarjana sosial sejak 2018.<br>
 
